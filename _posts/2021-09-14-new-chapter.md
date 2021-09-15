@@ -1,5 +1,5 @@
 ---
-title: "NEW CHAPTER"
+title: "New Chapter"
 date: 2021-09-14
 categories:
 ---
