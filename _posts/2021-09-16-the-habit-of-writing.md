@@ -21,6 +21,7 @@ But little did we knew then that the habit of writing is the most important aspe
 
 Once the thinking process is set, then reading, understanding, writing, improvising everything falls into place.
 
+## Information
 Few prominent psychologists suggest that a person who masters the skill of Writing, Reading, and Speaking has all the possibilities of succeeding in any task and rather in life.
 
 Writing after reading a topic or hearing a topic, helps us understand the areas where we are clear and strong and where we are weak. Helping in guiding us towards understanding a tips/ aspect better.
@@ -29,4 +30,5 @@ In this world of rapid growth with ideas and learning from all directions being 
 
 The process of writing also helps in arranging the thoughts in a particular order and also t plan a sequence of actions to be followed to achieve a particular task or a goal.
 
+### Conclusion
 practicing the art of writing also gives mastery on the subject. A whole database of your knowledge and thoughts. Over a while, the clarity and precision of writing improves, making the material sharp and crisp to the point and interesting and easy to understand.
