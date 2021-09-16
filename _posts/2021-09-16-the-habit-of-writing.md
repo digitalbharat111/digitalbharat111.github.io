@@ -13,7 +13,7 @@ Reading out the lessons, writing down the notes. Reading the questions and answe
 
 However, it is never taught as to the other benefits of writing. Rather the reason why we are writing.
 
-The education system fed us that writing has to be of a particular way and fr a particular purpose.
+**The education system fed us that writing has to be of a particular way and for a particular purpose.**
 
 The exercises are given for practicing writing, especially essays n various topics were to be to the point of Introduction / Main Body and summarisation/conclusion. 
 
