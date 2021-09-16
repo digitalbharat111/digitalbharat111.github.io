@@ -4,6 +4,8 @@ date: 2021-09-16
 categories:
 ---
 
+Have we ever really understood "Writing" as a habit for Self growth and development?
+
 We all learn to Read and Write in our childhood itself.
 
 Slowly schooling mostly becomes reading and writing.
@@ -17,15 +19,14 @@ The exercises are given for practicing writing, especially essays n various topi
 
 But little did we knew then that the habit of writing is the most important aspect of learning more importantly the thinking process.
 
-once the thinking process is set than reading, understanding, writing, improvising everything falls into place.
+Once the thinking process is set, then reading, understanding, writing, improvising everything falls into place.
 
-Few prominent psychologists suggest that a person who masters the skill of Writing, Reading and Speaking has all the possibilities of succeeding in any task and rather in life.
+Few prominent psychologists suggest that a person who masters the skill of Writing, Reading, and Speaking has all the possibilities of succeeding in any task and rather in life.
 
-Writing after reading a tpic or hearing a topic, helps us understand the areas where we are clear and strong and where we are weak. Helping in guiding us twards understanign a tpis/ aspect better.
+Writing after reading a topic or hearing a topic, helps us understand the areas where we are clear and strong and where we are weak. Helping in guiding us towards understanding a tips/ aspect better.
 
-In this world of rapid growth with ideas and learning frm all directions being bombarded onto an individual, writing slows down the thinking process and gives clarity. 
+In this world of rapid growth with ideas and learning from all directions being bombarded onto an individual, writing slows down the thinking process and gives clarity. 
 
-The process of writing also helps in arranging the thoughts in aprticular order and also t plan sequence of actions to be fllwed to achieve a particular task or a goal.
+The process of writing also helps in arranging the thoughts in a particular order and also t plan a sequence of actions to be followed to achieve a particular task or a goal.
 
-practicing the art of writing also gives mastery on the subject. A whole dtaabase of your knwoledge and thoughts. Over a perid of time the clarity and precision of wrting imprves making the material sharp and crisp to the pint and interesting and easy t understand.
-
+practicing the art of writing also gives mastery on the subject. A whole database of your knowledge and thoughts. Over a while, the clarity and precision of writing improves, making the material sharp and crisp to the point and interesting and easy to understand.
