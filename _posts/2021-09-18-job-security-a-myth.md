@@ -26,6 +26,21 @@ Millions of people lost their hard-earned well-paying jobs in a flash. Forcing t
 
 A question we must have asked ourselves longtime back.
 
+The job basically solves the financial requirement to run a family. The nature/level of the job a person qualifies for depends on the skillset and qualifications. As the main purpose of a job is to provide financial help one prefers a high-paying one. As time passed by and millions lost jobs due to external factors which had nothing to do with their self-performance or qualifications and skills, another factor arose linking to the security of the job itself.
+
+That is why the huge never-ending demand for Government jobs in our country. 
+
+As these jobs assure that once a person enters a job at a particular level as per the laid down rules increments, promotions and further benefits are given and are paid until they attain an age of 60 years and even after retiring from job provisions are made to provide financial and healthcare benefits as pension.
+
+Most of us are aware of all these issues. Also, we are all aware of the benefits of jobs and the importance of Job Security.
+
+Shall we even discuss then, What is it that we lose or give away in order to get and be in these jobs?
+
+Many and most of the jobs require your complete dedication to a good part of your daily life, some also drastically affecting the rest of your life. Be it the Stressful work, working conditions, performance pressure, work culture, etc. So after a few months into a particular job, people tend to mold their lifestyle, social circle, activities, and future plans to that job. As a result, there is always a hidden pressure in oneself not to lose this job as it becomes their way of life or life itself.
+
+This is seeming to be even deeper a subject to discuss. But in this article I hope, I could just highlight the fact that "Job Security" as we have been thinking of, is just a myth.
+
+As the essential purpose of a Job as I mentioned in the beginning, is the biggest cause of insecurity and stress in people's lives today.
 
 
 
