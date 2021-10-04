@@ -1,6 +1,6 @@
 ---
 title: "Business is not for You"
-date: 2021-10-0104
+date: 2021-10-04
 categories:
 ---
 
